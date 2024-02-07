@@ -15,3 +15,5 @@
 <b>Image Credits - Photo By SuiteCase Blue</b>
 <hr style="border:4px solid red">
 ## Thank You For Reading This Page
+
+### Suitecase’s Kamala Fox story End
