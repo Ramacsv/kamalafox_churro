@@ -1,8 +1,8 @@
 ## Welcome to Suitecase Fire Works page
 
-### July 4th is FireWorks day
+### Churro Exploration day
 
-### Suitecase’s fire works party 
+### Suitecase’s Kamala Fox story 
 
 
 <html>
