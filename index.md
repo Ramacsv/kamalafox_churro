@@ -6,7 +6,7 @@
 
 ![Kamala](DSCN0008.jpg "Kamala")
 
-![Kamala fox](fyteg,jpg")
+![Kamala ](fyteg,jpg")
 
 <b>Image Credits - Photo By SuiteCase Blue</b>
 <hr style="border:4px solid blue">
