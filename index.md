@@ -1,6 +1,6 @@
 ## Welcome to Suitecase Kamala Fox Churro Page
 
-### Churro Exploration day
+### Churro Exploration week
 
 ### Suitecase’s Kamala Fox story 
 
@@ -9,7 +9,7 @@
 <b>Image Credits - Photo By SuiteCase Blue</b>
 <hr style="border:4px solid blue">
 ### aerodrone and plane licence
-
+### passport govenment of churrotown mountains
 ![Kamala](kamala.png "Kamala")
 
 <b>Image Credits - Photo By SuiteCase Blue</b>
