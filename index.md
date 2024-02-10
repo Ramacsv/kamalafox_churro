@@ -30,7 +30,7 @@ The next day kamala woke up and got in to her car and went to Humboldt
 
 She started to walk to the building  and then entered the building and sat down and listend to the conversation at the end it was made a churro.
 
-*###THE END###*
+*THE END*
  
 
 ![fyteg.jpg ](fyteg.jpg "seal" )
