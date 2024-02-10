@@ -26,18 +26,11 @@
 *No one had ever tasted that flavor.*
 
 *There was voting for best flavor.*
+The next day kamala woke up and got in to her car and went to Humboldt
 
-Will continue with this later.
+She started to walk to the building  and then entered the building and sat down and listend to the conversation at the end it was made a churro.
 
-here is some cockamamie-- ramacsv and suitecase will contnue in few days.
-Now they are busy with homework and tests
-The next day kamala woke up and got in to her car and drove to honduras in the sonicflyer.
-
-By accident she went into a thunderstorm and she came crashing down with the car.
-
-The car exlpoded and got stuck under the debris. 
-
-To get out, she dug a hole, luckely there were car parts to fix her car
+*###THE END###*
  
 
 ![fyteg.jpg ](fyteg.jpg "seal" )
