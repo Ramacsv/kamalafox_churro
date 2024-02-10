@@ -35,7 +35,9 @@ She started to walk to the building  and then entered the building and sat down 
 
 ![fyteg.jpg ](fyteg.jpg "seal" )
 
-<b>Image Credits - Photo By SuiteCase Blue</b>
+### Churro Land state Seal
+
+<b>Image Credits - Photo By SuiteCase and Ramacsv</b>
 <hr style="border:4px solid blue">
 ### aerodrone and plane licence
 ### passport govenment of churrotown mountains
