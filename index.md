@@ -17,9 +17,9 @@
 
 *Tables were set up to display churro samples for people to taste.*
 
-*Names of those how had prepared were dispayed and they were standing near that table.*
+*Names of churros and those who had prepared churros were dispayed and they were standing near that table.*
 
-*Visitors were tasing and talking about the flavors.*
+*Visitors were tasting and talking about the flavors.*
 
 *Kamala Fox also had one table for her. Everyone loved her flavor.*
 
@@ -28,7 +28,7 @@
 *There was voting for best flavor.*
 The next day kamala woke up and got in to her car and went to Humboldt
 
-She started to walk to the building  and then entered the building and sat down and listend to the conversation at the end it was made a churro.
+She started to walk to the building  and then entered the building and sat down and listend to the conversation at the end it was made a churro!
 
 *THE END*
  
